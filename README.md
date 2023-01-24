@@ -3,7 +3,8 @@
 ## I have two brothers, and a lot of gaming technology in my bedroom, such as; a PC, Nintendo switch, and a Sega Genesis taht I barely touch but enjoy pkay from time to time. 
 ### This is also the *link* back to the same page as your are viewing right now. I just ~~need~~ want to add a link in order to submit this as **class work**. (https://github.com/eguinyard/eguinyard)
 
-![h](https://i.pinimg.com/564x/92/72/d5/9272d505f69d144d72309fa02a4f942e.jpg)
+here's one of myn favorite hobbies, looking and browsing for local gay thugs. (please don't judge me)
+Click Here>>>> [Surprise😉](https://www.localgaythugs.com/)
 
 These are my favorite games to play on each console. (Down Below)
 PC | Switch | PS4
