@@ -3,7 +3,7 @@
 ## I have two brothers, and a lot of gaming technology in my bedroom, such as; a PC, Nintendo switch, and a Sega Genesis taht I barely touch but enjoy pkay from time to time. 
 ### This is also the *link* back to the same page as your are viewing right now. I just ~~need~~ want to add a link in order to submit this as **class work**. (https://github.com/eguinyard/eguinyard)
 
-![](![image](https://user-images.githubusercontent.com/123292128/214229164-f369ef65-78c1-434a-b045-486983cda5fa.png))
+![]((https://user-images.githubusercontent.com/123292128/214229164-f369ef65-78c1-434a-b045-486983cda5fa.png))
 
 These are my favorite games to play on each console. (Down Below)
 PC | Switch | PS4
