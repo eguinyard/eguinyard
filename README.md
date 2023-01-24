@@ -9,4 +9,6 @@ PC | Switch | PS4
 Dead Estate | Brawlhalla | Burnout Paradise
 3 | 1 | 2
 
-**eguinyard/eguinyard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**eguinyard/eguinyard** is a ✨ _s)pecial_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+![bro](https://media.tenor.com/qKTBsktfhSgAAAAC/punch-blue-hoodie.gif)
